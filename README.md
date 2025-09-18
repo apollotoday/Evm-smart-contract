@@ -67,4 +67,4 @@ If you have any questions, reach us out on any of our channels. Our community is
 Website: https://beefy.finance/
 
 
-Telegram: https://t.me/web3_maxim 
+Telegram: https://t.me/microswarlord
